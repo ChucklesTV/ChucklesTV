@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on: Nothing
 - 📫 How to reach me: You don't
 - 😄 Pronouns: Anime/Waifu
-- ⚡ Fun fact: I am built like Minecraft Steve
+- ⚡ Fun fact: I am built like humpty dumpty
 
 ChucklesTV/ChucklesTV is a ✨ special ed ✨
