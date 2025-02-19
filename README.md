@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning: Python
 - 💞️ I’m looking to collaborate on: Nothing
 - 📫 How to reach me: You don't
-- 😄 Pronouns: Anime/Waifu
-- ⚡ Fun fact: I am built like humpty dumpty
+- 😄 Pronouns: man
+- ⚡ Fun fact: No
 
-ChucklesTV/ChucklesTV is a ✨ special ed ✨
+ChucklesTV/ChucklesTV is a guy
